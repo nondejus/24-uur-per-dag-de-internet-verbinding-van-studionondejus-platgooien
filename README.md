@@ -1,1 +1,1 @@
-# 24-uur-per-dag-de-Internet-verbindingen-van-studionondejus-platgooien
+# 24-uur-per-dag-de-internet-verbinding-van-studionondejus-platgooien
